@@ -1,6 +1,8 @@
 #  About Me:
-ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>Hi, I'm an AI/ML B.Tech student interested in building with technology.
-I'm currently learning, exploring new tools, and working on projects to improve my skills
+ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>Hi, I'm an AI/ML B.Tech student passionate about technology and problem-solving.
+I'm currently learning and exploring Artificial Intelligence, Machine Learning, and software development.
+I enjoy building projects, experimenting with new technologies, and improving my skills along the way.
+Still learning, still building, and always curious to learn something new.
 
 
 ##  Socials:
