@@ -1,5 +1,5 @@
 # 💫 About Me:
-ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>FlyLong 💸 <br>Future HOKAGE ⚖️<br>Science Student 
+ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>FlyLong 💸 <br>Future HOKAGE ⚖️<br>Learning... 
 
 
 ## 🌐 Socials:
