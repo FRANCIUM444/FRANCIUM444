@@ -1,5 +1,5 @@
 #  About Me:
- <br>Hi, I'm an AI/ML B.Tech student passionate about technology and problem-solving.
+Hi, I'm an AI/ML B.Tech student passionate about technology and problem-solving.
 I'm currently learning and exploring Artificial Intelligence, Machine Learning, and software development.
 I enjoy building projects, experimenting with new technologies, and improving my skills along the way.
 Still learning, still building, and always curious to learn something new.
