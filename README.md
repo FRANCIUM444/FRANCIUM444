@@ -1,5 +1,5 @@
 #  About Me:
-ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>Hi, I'm an AI/ML B.Tech student passionate about technology and problem-solving.
+ <br>Hi, I'm an AI/ML B.Tech student passionate about technology and problem-solving.
 I'm currently learning and exploring Artificial Intelligence, Machine Learning, and software development.
 I enjoy building projects, experimenting with new technologies, and improving my skills along the way.
 Still learning, still building, and always curious to learn something new.
