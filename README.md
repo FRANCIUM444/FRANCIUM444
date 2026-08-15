@@ -1,5 +1,6 @@
 #  About Me:
-ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>FlyLong  <br>Future HOKAGE !! <br>Learning... 
+ᵛ ⁱ ᵖ° 🫧 𓆩𝐒 Ħ Ɩ Ѵ Δ𓆪•𝅃꯭ 🎫 <br>Hi, I'm an AI/ML B.Tech student interested in building with technology.
+I'm currently learning, exploring new tools, and working on projects to improve my skills
 
 
 ##  Socials:
